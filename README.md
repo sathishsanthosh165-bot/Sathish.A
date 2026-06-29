@@ -3,6 +3,21 @@
 ## Agricultural Engineering Student
 
 I am an Agricultural Engineering undergraduate passionate about:
+## Highlights
+
+🏆 CGPA: 8.81
+
+🌱 Founder & Team Lead – Team GreenSynth
+
+🚜 Agricultural Engineering Student
+
+💡 Hydroponics, Precision Agriculture & Farm Machinery
+
+📚 20+ Certifications and Professional Training Programs
+
+🔬 Research Interest: Wolffia Cultivation & Sustainable Protein Systems
+
+---
 
 🌱 Hydroponics (NFT Systems)
 🚜 Farm Machinery
